@@ -1,35 +1,32 @@
-# abortion-pill-links
-https://www.directory-link.com/dashboard/eliesimth/posts_link/?link=link_dir_ltg
-https://www.theseobacklink.com/detail/where-to-buy-abortion-pills-at-low-price-in-the-usa-top-trusted-websites-in%C2%A0133768
-
-https://us.classi4u.com/p/abbeville-mifeprex-abortion-pill-in-birmingham-ndash-important-safety-precautions-pid4231276
-https://www.freeads24.com/index.php?option=com_marketplace&page=show_ad&catid=0&adid=725552&Itemid=27
-https://adoos.co.uk/mifeprex-abortion-pill-in-little-rock/120047
-https://www.buynow-us.com/767084-mifeprex-abortion-pill-in-fort-smith-%E2%80%93-important-safety-info-you-need/details.html
-http://www.hot-web-ads.com/view/item-16052600-Mifeprex-Abortion-Pill-in-Boise-%E2%80%93-How-to-Use-It-Responsibly.html
-https://www.adpost4u.com/for-sale/health-beauty/958446/mifeprex-abortion-pill-in-nampa-must-know-precautions-for-safe-use
-https://www.adproceed.com/ads/mifeprex-abortion-pill-in-nampa-must-know-precautions-for-safe-use/
-https://thegoodluck.com/anuncio/1108928/mifeprex-abortion-pill-in-fort-wayne-medical-safety-measures-explained/health-and-medical/
-https://www.theseobacklink.com/detail/mifeprex-abortion-pill-in-louisville--trusted-advice-for-home-use136469
-https://www.gofreeclassified.com/for-sale/health-beauty/mifeprex-abortion-pill-in-lexington-safety-tips-for-women-at-home_i70646
-https://www.adsfeast.com/listing/oklahoma-city-other-services-mifeprex-abortion-pill-in-new-orleans-ae-know-the-proper-dosage-use-371246
-https://www.postfreeadvertising.com/ads/mifeprex-abortion-pill-in-baton-rouge-stay-informed-before-use/
-https://www.n49.com/biz/6595272/mifeprex-abortion-pill-in-jackson-read-expert-precautions-first-ok-oklahoma-city-164-glen-st/
-https://adsmerk.com/for-sale/health-beauty/mifeprex-abortion-pill-in-gulfport-understand-medical-guidelines_i17540
-https://www.smallbusinessads.co.uk/listing/mifeprex-abortion-pill-in-oklahoma-city-a-guide-to-safe-use/
-https://www.freeadsz.co.za/ad-mifeprex-abortion-pill-in-tulsa-what-to-know-before-taking-it-326667?in=northern-cape-b_health-and-beauty
-https://animead.com/index.php?page=item&id=67392
-https://us.fmclassifieds.com/listings/ad/other-services/mifeprex-abortion-pill-in-memphis-home-use-tips-medical-advice
-https://redhotclassifieds.com/business-opportunities_2/health/mifeprex-abortion-pill-in-houston-read-before-you-order-online_i306715
-https://classifieds.dealerbaba.com/for-sale/miscellaneous-items/mifeprex-abortion-pill-in-charleston-learn-usage-side-effects
-http://grandislandconcretecontractors.com/textad/mifeprex-abortion-pill-online-usa-safe-pregnancy-termination-at-home-explained/
-https://www.articledude.com/classifieds/business-opportunities_2/health/mifeprex-abortion-pill-online-usa-when-amp-how-to-use-it-correctly-at-9-weeks_i89527
-https://purebacklink.com/list/mifeprex-abortion-pill-online-usa-full-guide-on-precautions-and-interactions/
-https://seorealit.com/list/mifeprex-abortion-pill-online-usa-what-to-avoid-before-and-after-use/
-https://followingbook.com/post/429610
-https://www.askmeclassifieds.com/for-sale/health-beauty/mifeprex-abortion-pill-online-usa-who-should-avoid-this-medication-and-why_i432961
-https://www.mainposter.com/messages/25212-Mifeprex-Abortion-Pill-Online-USA--Complete-Home-Abortion-Kit-Guide-with-Misoprostol.html
-https://weboworld.com/user/my-listings
-https://www.atozpages.com.au/?post_type=gd_place&p=188992&preview=true
-https://www.socialanxietysupport.com/threads/mifeprex-abortion-pill-online-usa-%E2%80%93-safe-usage-timeline-from-day-1-to-completion.2279964/
-https://www.citiservi.com/actions/business-created/
+<ul>
+  <li><a href="https://us.classi4u.com/p/abbeville-mifeprex-abortion-pill-in-birmingham-ndash-important-safety-precautions-pid4231276" target="_blank">Mifeprex Abortion Pill in Birmingham – Read Safety Precautions Before Use</a></li>
+  <li><a href="https://www.directory-link.com/dashboard/eliesimth/posts_link/?link=link_dir_ltg" target="_blank">Mifeprex Abortion Pill in Montgomery – What Women Must Know First</a></li>
+  <li><a href="https://adoos.co.uk/mifeprex-abortion-pill-in-little-rock/120047" target="_blank">Mifeprex Abortion Pill in Little Rock – Safe Usage Guidelines Inside</a></li>
+  <li><a href="https://www.buynow-us.com/767084-mifeprex-abortion-pill-in-fort-smith-%E2%80%93-important-safety-info-you-need/details.html" target="_blank">Mifeprex Abortion Pill in Fort Smith – Important Safety Info You Need</a></li>
+  <li><a href="http://www.hot-web-ads.com/view/item-16052600-Mifeprex-Abortion-Pill-in-Boise-%E2%80%93-How-to-Use-It-Responsibly.html" target="_blank">Mifeprex Abortion Pill in Boise – How to Use It Responsibly</a></li>
+  <li><a href="https://www.adpost4u.com/for-sale/health-beauty/958446/mifeprex-abortion-pill-in-nampa-must-know-precautions-for-safe-use" target="_blank">Mifeprex Abortion Pill in Nampa – Must-Know Precautions for Safe Use</a></li>
+  <li><a href="https://weboworld.com/user/my-listings" target="_blank">Mifeprex Abortion Pill in Indianapolis – Read This Before You Take It</a></li>
+  <li><a href="https://thegoodluck.com/anuncio/1108928/mifeprex-abortion-pill-in-fort-wayne-medical-safety-measures-explained/health-and-medical/" target="_blank">Mifeprex Abortion Pill in Fort Wayne – Medical Safety Measures Explained</a></li>
+  <li><a href="https://www.theseobacklink.com/detail/mifeprex-abortion-pill-in-louisville--trusted-advice-for-home-use136469" target="_blank">Mifeprex Abortion Pill in Louisville – Trusted Advice for Home Use</a></li>
+  <li><a href="https://www.gofreeclassified.com/for-sale/health-beauty/mifeprex-abortion-pill-in-lexington-safety-tips-for-women-at-home_i70646" target="_blank">Mifeprex Abortion Pill in Lexington – Safety Tips for Women at Home</a></li>
+  <li><a href="https://www.adsfeast.com/listing/oklahoma-city-other-services-mifeprex-abortion-pill-in-new-orleans-ae-know-the-proper-dosage-use-371246" target="_blank">Mifeprex Abortion Pill in New Orleans – Know the Proper Dosage & Use</a></li>
+  <li><a href="https://www.postfreeadvertising.com/ads/mifeprex-abortion-pill-in-baton-rouge-stay-informed-before-use/" target="_blank">Mifeprex Abortion Pill in Baton Rouge – Stay Informed Before Use</a></li>
+  <li><a href="https://www.n49.com/biz/6595272/mifeprex-abortion-pill-in-jackson-read-expert-precautions-first-ok-oklahoma-city-164-glen-st/" target="_blank">Mifeprex Abortion Pill in Jackson – Read Expert Precautions First</a></li>
+  <li><a href="https://adsmerk.com/for-sale/health-beauty/mifeprex-abortion-pill-in-gulfport-understand-medical-guidelines_i17540" target="_blank">Mifeprex Abortion Pill in Gulfport – Understand Medical Guidelines</a></li>
+  <li><a href="https://www.smallbusinessads.co.uk/listing/mifeprex-abortion-pill-in-oklahoma-city-a-guide-to-safe-use/" target="_blank">Mifeprex Abortion Pill in Oklahoma City – A Guide to Safe Use</a></li>
+  <li><a href="https://www.freeadsz.co.za/ad-mifeprex-abortion-pill-in-tulsa-what-to-know-before-taking-it-326667?in=northern-cape-b_health-and-beauty" target="_blank">Mifeprex Abortion Pill in Tulsa – What to Know Before Taking It</a></li>
+  <li><a href="https://animead.com/index.php?page=item&id=67392" target="_blank">Mifeprex Abortion Pill in Sioux Falls – Full Safety Info for Women</a></li>
+  <li><a href="https://us.fmclassifieds.com/listings/ad/other-services/mifeprex-abortion-pill-in-memphis-home-use-tips-medical-advice" target="_blank">Mifeprex Abortion Pill in Memphis – Home Use Tips & Medical Advice</a></li>
+  <li><a href="https://redhotclassifieds.com/business-opportunities_2/health/mifeprex-abortion-pill-in-houston-read-before-you-order-online_i306715" target="_blank">Mifeprex Abortion Pill in Houston – Read Before You Order Online</a></li>
+  <li><a href="https://classifieds.dealerbaba.com/for-sale/miscellaneous-items/mifeprex-abortion-pill-in-charleston-learn-usage-side-effects" target="_blank">Mifeprex Abortion Pill in Charleston – Learn Usage & Side Effects</a></li>
+  <li><a href="http://grandislandconcretecontractors.com/textad/mifeprex-abortion-pill-online-usa-safe-pregnancy-termination-at-home-explained/" target="_blank">Mifeprex Abortion Pill Online USA – Safe Pregnancy Termination at Home Explained</a></li>
+  <li><a href="https://www.articledude.com/classifieds/business-opportunities_2/health/mifeprex-abortion-pill-online-usa-when-amp-how-to-use-it-correctly-at-9-weeks_i89527" target="_blank">Mifeprex Abortion Pill Online USA – When & How to Use It Correctly at 9 Weeks</a></li>
+  <li><a href="https://purebacklink.com/list/mifeprex-abortion-pill-online-usa-full-guide-on-precautions-and-interactions/" target="_blank">Mifeprex Abortion Pill Online USA – Full Guide on Precautions and Interactions</a></li>
+  <li><a href="https://seorealit.com/list/mifeprex-abortion-pill-online-usa-what-to-avoid-before-and-after-use/" target="_blank">Mifeprex Abortion Pill Online USA – What to Avoid Before and After Use</a></li>
+  <li><a href="https://followingbook.com/post/429610" target="_blank">Mifeprex Abortion Pill Online USA – Learn Home Abortion Procedure Step-by-Step</a></li>
+  <li><a href="https://www.askmeclassifieds.com/for-sale/health-beauty/mifeprex-abortion-pill-online-usa-who-should-avoid-this-medication-and-why_i432961" target="_blank">Mifeprex Abortion Pill Online USA – Who Should Avoid This Medication and Why</a></li>
+  <li><a href="https://www.mainposter.com/messages/25212-Mifeprex-Abortion-Pill-Online-USA--Complete-Home-Abortion-Kit-Guide-with-Misoprostol.html" target="_blank">Mifeprex Abortion Pill Online USA – Complete Home Abortion Kit Guide with Misoprostol</a></li>
+  <li><a href="https://www.atozpages.com.au/?post_type=gd_place&p=188992&preview=true" target="_blank">Mifeprex Abortion Pill Online USA – Know the Do’s and Don’ts Before Taking It</a></li>
+  <li><a href="https://www.socialanxietysupport.com/threads/mifeprex-abortion-pill-online-usa-%E2%80%93-safe-usage-timeline-from-day-1-to-completion.2279964/" target="_blank">Mifeprex Abortion Pill Online USA – Safe Usage Timeline from Day 1 to Completion</a></li>
+  <li><a href="https://www.theseobacklink.com/detail/where-to-buy-abortion-pills-at-low-price-in-the-usa-top-trusted-websites-in%C2%A0133768" target="_blank">Mifeprex Abortion Pill Online USA – What Every Woman Must Know Before Use</a></li>
+</ul>
